@@ -2,7 +2,7 @@
 
 ## Estudiante
 
-Sam G
+Stefany Gallegos
 
 ## Descripción
 
